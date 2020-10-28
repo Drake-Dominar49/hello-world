@@ -2,5 +2,5 @@
 
 Hi Hoomans!
 
-What is it that you all crave?!
-Yo dumb lust
+Naruto >> Goku
+Arceus claps goku single legedly
